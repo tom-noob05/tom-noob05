@@ -1,0 +1,4 @@
+-  Hi, I’m @tom-noob05
+-  I’m interested in learning new skills and developing my brain for later use :)
+-  I’m currently learning C, math and reading upside-down
+-  How to reach me: @tomthetrash on Discord
